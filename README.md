@@ -29,7 +29,7 @@ My focus lies in the intersection of **blockchain development** and **electronic
 
 ## 🌍 Find Me Online
 - [X / Twitter](https://x.com/mesasantiago5)
-- [Instagram](https://instagram.com/mesasantiago5)
+- [Telegram](@mesas01)
 - [LinkedIn](https://www.linkedin.com/in/santiagomesan)
 
 ---
